@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @XiaoxiaoHe-at
-- 👀 I’m interested in cooking, traveling and painting. I love water color painting and paint by number. 
-- 🌱 I’m currently learning piano with my son.
 - 💞️ I’m looking to collaborate on fun projects ~
 - 📫 You can reach me at xiaoxiao.he@airtable.com
 
